@@ -1,1 +1,0 @@
-# jthomasparr-spec.github.io
